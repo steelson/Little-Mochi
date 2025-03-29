@@ -17,3 +17,5 @@ Choosing your baby’s name should be joyful, simple, and memorable. Say goodbye
 
 Your baby’s name is their first gift.
 Discover it here—Swipe, Save, and Cherish forever.
+
+For feedback or offers email: tato.polodashvili@icloud.com
