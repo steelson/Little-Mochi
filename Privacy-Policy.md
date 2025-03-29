@@ -75,8 +75,7 @@ We may update this Privacy Policy to reflect changes in our practices or for oth
 
 If you have any questions, concerns, or comments regarding this Privacy Policy or our data practices, please contact us at:
 
-Email: [Your Contact Email]
-Mailing Address (if applicable): [Your Physical/Registered Address]
+Email: tato.polodashvili@icloud.com
 
 We will make every effort to address and resolve your inquiries promptly.
 
