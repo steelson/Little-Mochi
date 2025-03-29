@@ -1,4 +1,4 @@
-# Little-Mochi
+# Little Mochi
 Baby Name Finder App
 
 Welcome to the official page of Little Mochi.
